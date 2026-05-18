@@ -1,4 +1,4 @@
-# 
+# custom bot de trading de perpetuos ejecutor es el mejor bot de trading de perpetuos ejecutor con margen aislado y gestión de apalancamiento. Seguro, confiable y optimizado para
 
 
 
